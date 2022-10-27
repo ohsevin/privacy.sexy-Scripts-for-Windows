@@ -8,9 +8,9 @@
 | $$  | $$| $$$$$$$$| $$  | $$| $$$$$$$/| $$ \/  | $$| $$$$$$$$ /$$| $$ | $$ | $$|  $$$$$$$
 |__/  |__/|________/|__/  |__/|_______/ |__/     |__/|________/|__/|__/ |__/ |__/ \_______/
 ```
-```
-Brought to you by Shane Maloney of https://zypl.tk
-```
+
+> Brought to you by Shane Maloney of https://zypl.tk
+
 
 A collection of all the scripts that can be found at https://privacy.sexy in a cute zip file! =/)
 
