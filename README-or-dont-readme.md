@@ -8,20 +8,21 @@
 | $$  | $$| $$$$$$$$| $$  | $$| $$$$$$$/| $$ \/  | $$| $$$$$$$$ /$$| $$ | $$ | $$|  $$$$$$$
 |__/  |__/|________/|__/  |__/|_______/ |__/     |__/|________/|__/|__/ |__/ |__/ \_______/
 ```
+<sub>
 >(Brought to you by Shane Maloney of https://zypl.tk)
 >
 >A collection of all the scripts that can be found at https://privacy.sexy in a cute zip file! =/)
 >
->I DO NOT claim ownership nor have ANY rights to ANY of these. DO NOT attempt to contact me. Fuck you
+>I DO NOT claim ownership nor have ANY rights to ANY of these. DO NOT attempt to contact me. **REDACTED** you
 >
 >
 >
 >
 >Yes that's all.
 >
->Andddd fuck you, again.
+>Andddd **REDACTED** you, again.
 >
 >
 >
->(fake copyright claim from a random year for an unregistered limited liability corporation --faggot)
-
+>(fake copyright claim from a random year for an unregistered limited liability corporation --**REDACTED**)
+</sub>
