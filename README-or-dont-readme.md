@@ -17,5 +17,5 @@ A collection of all the scripts that can be found at https://privacy.sexy packag
 I DO NOT claim ownership nor have ANY rights to ANY of these. DO NOT attempt to contact me.
 
 ```
-**REDACTED** yourself.
+"Go **REDACTED** yourself."
 ```
