@@ -15,14 +15,5 @@ A collection of all the scripts that can be found at https://privacy.sexy in a c
 
 I DO NOT claim ownership nor have ANY rights to ANY of these. DO NOT attempt to contact me. **REDACTED** you
 
-
-
-
-Yes that's all.
-
-Andddd **REDACTED** you, again.
-
-
-
-(fake copyright claim from a random year for an unregistered limited liability corporation --**REDACTED**)
+(fake copyright claim from a random year for an unregistered limited liability corporation)
 </sub>
