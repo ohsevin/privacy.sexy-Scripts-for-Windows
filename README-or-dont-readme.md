@@ -10,10 +10,12 @@
 ```
 ```
 Brought to you by Shane Maloney of https://zypl.tk
+```
 
 A collection of all the scripts that can be found at https://privacy.sexy in a cute zip file! =/)
 
 I DO NOT claim ownership nor have ANY rights to ANY of these. DO NOT attempt to contact me.
-  
-**REDACTED** you
+
+```
+**REDACTED** yourself.
 ```
